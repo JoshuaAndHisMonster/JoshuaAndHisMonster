@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoshuaAndHisMonster
+- 👀 I’m interested in playing video games like Among US, FNAF Security breach, Fortnite.
+- 🌱 I’m currently learning... NOTHING. this account was made for no reason.
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me my email is ItsYoBoiAriesStreamer@gmail.com
